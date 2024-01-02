@@ -5,7 +5,7 @@ My 2023 Resume. I am looking for remote work
 **Mark Robinson**  
 Software Developer at Wells Fargo  
 Lumberton, North Carolina, United States  
-LinkedIn: [linkedin.com/in/markrobinson](https://linkedin.com/in/markrobinson)  
+email: mardrobinson2545@proton.me
 (910) 319-9564‬
 Pronouns: He/Him  
 
